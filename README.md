@@ -54,7 +54,7 @@ Usage of ScreenSpy for attacking targets without prior mutual consent is illegal
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://www.youtube.com/watch?v=M1x2tjfDGS4 🎥
+- 🔞 See Training 🎥 https://www.youtube.com/watch?v=5vQXy-1mxJ8&feature=youtu.be  🎥
 
 ----------------------
 
